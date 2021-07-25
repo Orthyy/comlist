@@ -5,11 +5,11 @@ Comlist a place to find com servers updated daily and maintained by Orthy ~ <3
 None right now
 
 ### Com Servers <3
-[Gas](http://discord.gg/gas/)<br/>
-[Com](http://discord.gg/com/)<br/>
-[Pretty](http://discord.gg/pretty/)<br/>
-[LMK](http://discord.gg/lmk/)<br/>
-[Mutual](http://discord.gg/Mutual/)<br/>
+[Gas](https://discord.gg/a4GM8nxSJX)<br/>
+[Pretty](https://discord.gg/kRqJS5fMyY)<br/>
+[LMK](https://discord.gg/ZNvG3p4PT6)<br/>
+[Mutual](https://discord.gg/PBcFABvdCM)<br/>
+[RIP](https://discord.gg/TncrGcj3ww)<br/>
 
-### Sponsors <3
-Want to see your Brand here dm orthy#0001 on discord [Example](https://orthyy.github.io/comlist/)
+### Supporters <3
+ZST
